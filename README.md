@@ -3,7 +3,7 @@
 - 👀 Hail Battlestar Galactica
 - 🌱 Learning more than one thing at a time
 - 💞️ I’m looking to collaborate with a Cylon :alien:
-- :satellite: How to reach me? O e O ?
+- :satellite:
 
 :wink:
 
