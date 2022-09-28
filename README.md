@@ -3,9 +3,7 @@
 - 👀 Hail Battlestar Galactica
 - 🌱 Learning more than one thing at a time
 - 💞️ I’m looking to collaborate with a Cylon :alien:
-- :satellite:
-
-:wink:
+- 📡 👨‍🚀 
 
 <!---
 iliion/iliion is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
